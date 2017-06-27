@@ -1,0 +1,1 @@
+zdarowi vyrai
