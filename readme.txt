@@ -1,1 +1,1 @@
-zdarowi vyrai
+zdarowi vyrai, kaip laikotes, vyrai?
